@@ -1,1 +1,1 @@
-A software developer Portfolio, I designed and I'll put in sale on Envato.
+I create and designed this software developer Portfolio. That I'll put in sale on Envato.
